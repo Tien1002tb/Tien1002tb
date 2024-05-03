@@ -7,7 +7,7 @@ Electrical and Electronic Engineer
 I'm studying in PTIT - HN
 
 * 🌍  I'm based in Ha Noi
-* ✉️  You can contact me at [godsofmickey@gmail.com](mailto:godsofmickey@gmail.com)
+* ✉️  You can contact me at [nguyenminhtien1002.tb@gmail.com](mailto:nguyenminhtien1002.tb@gmail.com)
 
 ### Skills
 
